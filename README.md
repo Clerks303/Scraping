@@ -239,4 +239,4 @@ Pour toute question ou assistance :
 
 ## 📄 Licence
 
-Propriétaire - Cabinet M&A Arthur © 2025
+Propriétaire - Cabinet M&A © 2025
